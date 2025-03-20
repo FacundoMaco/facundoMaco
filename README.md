@@ -32,7 +32,7 @@ Soy estudiante de Ciencias de la Computación en la UPC y un apasionado por el d
 
 ### ⚡ Datos curiosos sobre mí
 - 🎵 Me gusta el R&B.
-- 🏋️‍♂️ Voy al gimnasio.
+- 🏋️‍♂️ GymBro al mango, si quieres entrenar juntos, HMU!.
 
 ---
 
